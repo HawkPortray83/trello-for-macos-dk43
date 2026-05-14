@@ -1,4 +1,4 @@
-#  
+#  Trello for macOS smart Automation - custom shortcuts and OCR scanning is the best Trello for macOS automation, featuring custom shortcuts and OCR scanning. Safe, efficient, and
 
 
 
